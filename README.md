@@ -52,14 +52,14 @@ http://www.instaclip.app/
 
 Yahoo
 [Instagram Video Downloader](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=download+instagram+video+instaclip.app)
-![image](https://github.com/user-attachments/assets/06557d21-5f97-471e-bbbe-950b9fc4dbe4)
+
 
 [download instagram video](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=download+instagram+video+instaclip.app)
 [Download Instagram Video and Images](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=download+instagram+video+and+images+instaclip.app)
 [Instagram Video Downloader](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instagram+video+downloader+instaclip.app)
 [Instagram Video Download](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instagram+video+download+instaclip.app)
 [instaclip](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instaclip)
-![image](https://github.com/user-attachments/assets/2d4048a1-3892-4b18-8eec-d91eacaf9f8a)
+
 
 [Instaclip](https://www.bing.com/search?q=download+instagram+video+instaclip.app)
 [Instaclip](https://www.bing.com/search?q=download+instagram+video+and+images+instaclip.app)
@@ -67,7 +67,7 @@ Yahoo
 [Instaclip](https://www.bing.com/search?q=instagram+video+download+instaclip.app)
 [Instaclip](https://www.bing.com/search?q=instaclip)
 [Instaclip](https://www.bing.com/search?q=Instagram+video+download+instaclip.app)
-![image](https://github.com/user-attachments/assets/3b7cc29a-59db-4a66-ae09-53ec70d773d2)
+
 [download instagram video](https://www.google.com/search?q=Instagram+video+download+instaclip.app)
 [instagram video download](https://www.google.com/search?q=Instagram+video+download+instaclip.app)
 [instagram video download](https://www.google.com/search?q=Instagram+video+download+instaclip.app)
@@ -76,22 +76,22 @@ Yahoo
 
 
 [Instagram Video Downloader](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=download+instagram+video+instaclip.app)
-![image](https://github.com/user-attachments/assets/06557d21-5f97-471e-bbbe-950b9fc4dbe4)
+
 
 [download instagram video](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=download+instagram+video+instaclip.app)
 [Download Instagram Video and Images](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=download+instagram+video+and+images+instaclip.app)
 [Instagram Video Downloader](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instagram+video+downloader+instaclip.app)
 [Instagram Video Download](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instagram+video+download+instaclip.app)
 [instaclip](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instaclip)
-![image](https://github.com/user-attachments/assets/2d4048a1-3892-4b18-8eec-d91eacaf9f8a)
+
 
 [Instagram Video Downloader](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=download+instagram+video+instaclip.app)
-![image](https://github.com/user-attachments/assets/06557d21-5f97-471e-bbbe-950b9fc4dbe4)
+
 
 [download instagram video](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=download+instagram+video+instaclip.app)
 [Download Instagram Video and Images](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=download+instagram+video+and+images+instaclip.app)
 [Instagram Video Downloader](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instagram+video+downloader+instaclip.app)
 [Instagram Video Download](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instagram+video+download+instaclip.app)
 [instaclip](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instaclip)
-![image](https://github.com/user-attachments/assets/2d4048a1-3892-4b18-8eec-d91eacaf9f8a)
+
 
