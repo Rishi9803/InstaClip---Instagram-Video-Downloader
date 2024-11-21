@@ -94,4 +94,5 @@ Yahoo
 [Instagram Video Download](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instagram+video+download+instaclip.app)
 [instaclip](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=instaclip)
 
-
+[instaclip](https://semrush1.mughalseotools.com/analytics/overview/?q=https%3A%2F%2Finstaclip.app%2F&protocol=https&searchType=domain)
+[download instagram video](https://www.semrush.com/analytics/backlinks/overview/?q=https%3A%2F%2Finstaclip.app%2F&searchType=domain)
