@@ -168,5 +168,5 @@ https://giphy.com/channel/Instaclip
 https://t.me/s/instaclipapp
 https://bit.ly/m/instaclip
 https://plaza.rakuten.co.jp/isntaclip/diary/202411220000/
-![image](https://github.com/user-attachments/assets/5980173d-bd61-41bf-bc6c-15ad0f9fa3e2)
+
 
