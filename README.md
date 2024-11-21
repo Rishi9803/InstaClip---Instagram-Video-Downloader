@@ -73,7 +73,7 @@ Yahoo
 [instagram video download](https://www.google.com/search?q=Instagram+video+download+instaclip.app)
 [instagram video download](https://www.google.com/search?q=Instagram+video+download+instaclip.app)
 [instagram video download](https://www.google.com/search?q=Instagram+video+download+instaclip.app)
-![image](https://github.com/user-attachments/assets/9e519dba-0f16-438b-bf3a-be26f08a9138)
+
 
 [Instagram Video Downloader](https://gr.search.yahoo.com/mobile/s?ei=UTF-8&fr2=p%3As%2Cv%3Aw%2Cm%3Aat-e%2Cct%3Agossip&p=download+instagram+video+instaclip.app)
 ![image](https://github.com/user-attachments/assets/06557d21-5f97-471e-bbbe-950b9fc4dbe4)
